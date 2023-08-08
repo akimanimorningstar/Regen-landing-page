@@ -1,1 +1,1 @@
-Regen landing Page - fina
+Regen landing Page - final
